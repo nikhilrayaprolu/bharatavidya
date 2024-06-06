@@ -1,6 +1,6 @@
 ---
 title: Guide
-next: first-page
+next: docs/values
 ---
 
 The educational journey in Dharmic traditions, particularly within the context of Hindu philosophy, begins with a profound understanding of the fundamental principles that shape a person's worldview and ethical framework. Vedic education, rooted in ancient Indian scriptures and practices, offers a holistic approach to learning that integrates intellectual, moral, emotional and spiritual development. This chapter explores the foundational aspects of Vedic education, emphasizing the importance of early initiation into this system and the transformative impact it has on individuals and society.

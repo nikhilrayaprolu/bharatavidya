@@ -1,6 +1,6 @@
 
 ---
-title: Atma
+title: Ishvara
 type: docs
 prev: docs/stories/
 ---

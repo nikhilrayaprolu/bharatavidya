@@ -1,4 +1,10 @@
 
+
+---
+title: Nature Journalling
+type: docs
+prev: docs/stories/
+---
 #### 239. **Nature Journaling: Connecting Art, Science, and Observation**
 
 Nature Journaling: Connecting Art, Science, and Observation

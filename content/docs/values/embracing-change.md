@@ -1,3 +1,10 @@
+---
+title: Embracing-Change
+type: docs
+prev: docs/stories/
+weight: 2
+---
+
 
 #### Embracing Change: Teaching Adaptive Resilience Through Dharma-Based Education
 

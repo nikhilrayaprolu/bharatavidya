@@ -3,6 +3,7 @@
 title: Decision-Making
 type: docs
 prev: docs/stories/
+weight: 1
 ---
 #### Understanding the Impact of Choice and Decision Making
 

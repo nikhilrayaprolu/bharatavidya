@@ -3,6 +3,7 @@ title: Stories through Panchatantra
 type: docs
 prev: docs/values/
 ---
+#### Stories
 
 Storybooks of values, supported by appropriate illustrations, have traditionally been known to be a creative activity, that gives enough scope for a child's intellect and perception of right and wrong. Children world over, between the ages of five to eight, have a natural aptitude to relate to a value from a pictorial-based story.
 

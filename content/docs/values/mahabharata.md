@@ -3,7 +3,10 @@
 title: Mahabharata
 type: docs
 prev: docs/stories/
+weight: 5
 ---
+
+#### Mahabharata
 
 The Mahabharata is esteemed for encompassing all human pursuits: dharma (duty), artha (wealth), kama (pleasure), and moksha (liberation). There is a saying suggesting that whatever is present in the Mahabharata is found elsewhere, and what is not, cannot be found anywhere else. This grand work is often called the "fifth Veda" due to its comprehensive nature.
 The Mahabharata is a monumental poem with 100,000 verses, making it significantly longer than Western epics like the Iliad and the Odyssey combined. It is celebrated as the longest poem in existence and is written in a metrical form, emphasizing its poetic nature.

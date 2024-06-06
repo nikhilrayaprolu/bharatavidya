@@ -1,3 +1,10 @@
+---
+title: Karma
+type: docs
+prev: docs/stories/
+weight: 1
+---
+
 
 #### The Philosophy of Karma and Its Educational Implications
 

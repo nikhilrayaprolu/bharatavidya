@@ -1,3 +1,9 @@
+---
+title: Gratitude
+type: docs
+prev: docs/stories/
+weight: 3
+---
 
 #### Cultivating Gratitude and Humility
 

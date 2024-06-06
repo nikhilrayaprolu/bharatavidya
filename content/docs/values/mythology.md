@@ -1,3 +1,11 @@
+---
+title: Mythology
+type: docs
+prev: docs/stories/
+weight: 4
+---
+#### Mythology
+
 The Vedic vision, preserved through Indian literature, offers a profound way of life. Texts like the Rāmāyaṇa, Mahābhārata, and the purāṇas have shaped the lives of millions, teaching them the principles of righteous living through stories rather than strict doctrines.
 
 Education often lacks lessons on right living. Despite knowledge in science and technology, insights into ethical living are rare. Universal values like truthfulness, noninjury, and honesty can seem idealistic in today's society. However, these values are crucial, though living by them often brings conflict.
