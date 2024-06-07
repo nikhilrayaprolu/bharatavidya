@@ -41,7 +41,7 @@ menu:
       url: "https://twitter.com/"
       params:
         icon: x-twitter
-
+GoogleAnalytics: 'G-90W0H8R0LT'
 params:
   navbar:
     displayTitle: true
