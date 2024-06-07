@@ -1,7 +1,7 @@
 
-#### Mind-Body Connection: The Role of Yoga in Dharma-Based Education
+#### Mind-Body Connection: The Role of Yoga in Bharata Vidya
 
-In the modern educational landscape, the mind-body connection is often overlooked, despite its impact on well-being and academic performance. Dharma-based education remedies this by integrating yoga, rooted in ancient wisdom, into its curriculum. Yoga offers a holistic approach by nurturing the mind, body, and spirit through physical postures, breathing exercises, and meditation. This enhances physical health, mental clarity, emotional stability, and spiritual growth, making yoga indispensable in Dharma-based education.
+In the modern educational landscape, the mind-body connection is often overlooked, despite its impact on well-being and academic performance. Bharata Vidya remedies this by integrating yoga, rooted in ancient wisdom, into its curriculum. Yoga offers a holistic approach by nurturing the mind, body, and spirit through physical postures, breathing exercises, and meditation. This enhances physical health, mental clarity, emotional stability, and spiritual growth, making yoga indispensable in Bharata Vidya.
 
 Yoga, meaning "to unite" in Sanskrit, aims to harmonize the mind, body, and spirit, promoting mental and emotional equilibrium. Its inclusion in daily routines fosters holistic development, preparing children to face challenges with resilience and grace.
 
@@ -21,4 +21,4 @@ Additionally, yoga promotes environmental stewardship by teaching respect for al
 
 Incorporating yoga offers long-term benefits extending into adulthood. The skills acquired prepare children to lead balanced, fulfilling lives, making them resilient, compassionate, and attuned to their inner selves, contributing to well-rounded individuals who are academically proficient, emotionally stable, and spiritually grounded.
 
-In conclusion, yoga in Dharma-based education is transformative, nurturing the mind-body connection to support holistic development. It equips children to navigate life's complexities with resilience and wisdom, promoting balanced and fulfilling lives. Dharma-based education cultivates the full spectrum of human potential, preparing children to contribute positively to their communities and the world.
+In conclusion, yoga in Bharata Vidya is transformative, nurturing the mind-body connection to support holistic development. It equips children to navigate life's complexities with resilience and wisdom, promoting balanced and fulfilling lives. Bharata Vidya cultivates the full spectrum of human potential, preparing children to contribute positively to their communities and the world.

@@ -3,7 +3,7 @@
 
 **Bilingual and Multilingual Education Through Sanskrit: A Gateway to Cognitive and Cultural Enrichment**
 
-In a globalized world, multilingual education offers vital skills for navigating diverse cultures and opportunities. While modern languages like English, Mandarin, and Spanish are often prioritized, incorporating Sanskrit adds a unique dimension. This ancient language, integral to Indian scriptures and texts, enhances cognitive, cultural, and spiritual development, aligning well with Dharma-based education principles.
+In a globalized world, multilingual education offers vital skills for navigating diverse cultures and opportunities. While modern languages like English, Mandarin, and Spanish are often prioritized, incorporating Sanskrit adds a unique dimension. This ancient language, integral to Indian scriptures and texts, enhances cognitive, cultural, and spiritual development, aligning well with Bharata Vidya principles.
 
 **Cognitive Benefits**
 

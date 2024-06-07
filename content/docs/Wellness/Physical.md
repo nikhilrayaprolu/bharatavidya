@@ -1,15 +1,15 @@
 
-#### **The Role of Physical Education and Well-Being in Dharma-Based Education**
+#### **The Role of Physical Education and Well-Being in Bharata Vidya**
 
   
 
 **Introduction**
 
-Physical education and well-being are central to a holistic educational framework. Dharma-based education emphasizes the interconnectedness of body, mind, and spirit, promoting physical health as integral to overall development.
+Physical education and well-being are central to a holistic educational framework. Bharata Vidya emphasizes the interconnectedness of body, mind, and spirit, promoting physical health as integral to overall development.
 
 **Holistic Approach to Physical Education**
 
-In Dharma-based education, physical fitness is part of a broader concept of well-being, including mental, emotional, and spiritual health. This comprehensive approach ensures students cultivate all facets of their being.
+In Bharata Vidya, physical fitness is part of a broader concept of well-being, including mental, emotional, and spiritual health. This comprehensive approach ensures students cultivate all facets of their being.
 
 **Yoga: A Foundational Practice**
 
@@ -25,7 +25,7 @@ Activities like hiking, camping, and nature walks connect students with nature, 
 
 **Nutrition and Healthy Eating**
 
-Dharma-based education underscores nutrition and healthy eating. Students learn about food's nutritional value, balanced diets, and mindful eating. Ayurveda lessons illuminate the relationship between diet, body constitution (doshas), and health, guiding students to make informed dietary choices.
+Bharata Vidya underscores nutrition and healthy eating. Students learn about food's nutritional value, balanced diets, and mindful eating. Ayurveda lessons illuminate the relationship between diet, body constitution (doshas), and health, guiding students to make informed dietary choices.
 
 **Mental and Emotional Well-Being**
 
@@ -33,7 +33,7 @@ Mental and emotional health are closely linked to physical well-being. Mindfulne
 
 **School Environment**
 
-A positive school environment underpins emotional well-being. Dharma-based education fosters compassion, respect, and inclusivity, creating a supportive, safe space. Open communication, peer support, and positive relationships enhance students' sense of belonging and security. Counselors and mentors provide crucial emotional guidance and support.
+A positive school environment underpins emotional well-being. Bharata Vidya fosters compassion, respect, and inclusivity, creating a supportive, safe space. Open communication, peer support, and positive relationships enhance students' sense of belonging and security. Counselors and mentors provide crucial emotional guidance and support.
 
 **Creative Activities**
 
@@ -41,8 +41,8 @@ Arts and creative activities boost emotional and psychological health. Music, da
 
 **Community and Social Connections**
 
-Strong social connections are vital. Dharma-based education promotes interpersonal relationships and community involvement, contributing to social health and emotional support. Collaborative projects and community service foster empathy and interdependence, enriching the educational experience.
+Strong social connections are vital. Bharata Vidya promotes interpersonal relationships and community involvement, contributing to social health and emotional support. Collaborative projects and community service foster empathy and interdependence, enriching the educational experience.
 
 **Parental Involvement**
 
-Parental support is crucial. Dharma-based education encourages parents to model healthy lifestyles and engage in physical activities with their children. Family wellness programs and events reinforce holistic health principles at home.
+Parental support is crucial. Bharata Vidya encourages parents to model healthy lifestyles and engage in physical activities with their children. Family wellness programs and events reinforce holistic health principles at home.
