@@ -5,7 +5,7 @@ prev: docs/first-page
 next: docs/values/stories
 sidebar:
   open: true
-weight: 2
+weight: 5
 ---
 
 #### The Role of Nature and Outdoor Learning in Bharata Vidya

@@ -5,7 +5,7 @@ prev: docs/first-page
 next: docs/values/stories
 sidebar:
   open: true
-weight: 5
+weight: 9
 ---
 
 #### Understanding and Embracing Your True Self Through Bharata Vidya

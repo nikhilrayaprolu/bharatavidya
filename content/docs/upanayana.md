@@ -1,7 +1,7 @@
 ---
 title: Upanayana
 next: docs/values
-weight: 1
+weight: 3
 ---
 
 #### The Role of Rituals and Ceremonies

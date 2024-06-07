@@ -1,7 +1,7 @@
 ---
 title: Purushartha
 next: docs/values
-weight: 1
+weight: 3
 ---
 
 ## Introduction
