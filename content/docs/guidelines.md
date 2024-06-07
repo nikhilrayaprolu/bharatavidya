@@ -104,6 +104,13 @@ weight: 2
 
 ---
 
+#### 11. Being vs. Doing
+
+-   **Embracing Beingness:** Recognize the importance of being over doing. Being in Sahajate implies actions flowing effortlessly from a state of naturalness rather than being driven by external pressures or expectations.
+-   **Cultivating Presence:** Cultivate presence and awareness in every moment, allowing actions to arise organically from a place of inner stillness and authenticity.
+-   **Balancing Effort and Surrender:** Surrender to the natural flow of life. Surrendering to Ishvara’s play allows for a deeper alignment with true purpose and harmony.
+
+---
 
 ### A Regular CheckList
 
