@@ -34,3 +34,7 @@ Furthermore, stories act as mirrors to one's life, helping children internalize 
 Storytelling also fosters emotional intelligence. Experiencing characters' emotions helps children empathize with various feelings—joy, sorrow, anger, fear, and love. This emotional engagement enhances compassion and understanding, crucial for forming meaningful relationships and navigating social complexities.
 
 Parables and allegories are particularly effective in Bharata Vidya, conveying deep spiritual and ethical teachings succinctly. The parable of the blind men and the elephant illustrates the limitations of individual perception and the need for holistic understanding, encouraging critical thinking and intellectual humility.
+
+**Reference**: https://www.purnavidya.org/shop
+
+**Recommended to buy**: Panchatantra and Puranic Tales from https://pv.purnavidya.org/bookset/

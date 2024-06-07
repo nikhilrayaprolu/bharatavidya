@@ -43,3 +43,8 @@ The sacred syllable Om signifies the cause and basis of creation, representing a
 Water might be hidden underground, accessible only through effort, similar to divine grace, which requires prayer to be earned. Prayer, be it through pūjā, recitation, or mental japa, becomes a means of channeling divine grace throughout one's life. Through prayer, devotees invoke the unknown factor (daivam), acknowledging that despite human effort and the passage of time, the divine intervention plays a vital role in achieving desired results.
 
 In conclusion, prayer is more than a ritual; it is a heartfelt communication, a deep relationship with the divine that brings comfort, clarity, and grace into one's life. By engaging earnestly in prayer, practicing proper chanting, and understanding its deeper meanings, one can invoke and earn the Lord’s omnipresent grace, enriching life’s journey with spiritual maturity and divine wisdom.
+
+
+**Reference**: https://www.purnavidya.org/shop
+
+**Recommended to buy**: Puja and Prayers from https://pv.purnavidya.org/bookset/

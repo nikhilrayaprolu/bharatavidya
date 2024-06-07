@@ -66,3 +66,8 @@ A pūjā can vary from the basic pañcāśopācāra-pūjā to the more elaborate
 **Final Thoughts**
 
 Pūjā is a deeply ingrained tradition that offers a structured way to honor and connect with the divine. The practice benefits from meticulous attention to detail, sincerity, and an attitude of reverence. Whether performed at home or in a temple, the ultimate aim is to cultivate a pure mind, gratitude, and a harmonious relationship with Īśvara. The offering of prasāda and the concluding salutation encapsulate the essence of giving and receiving divine grace.
+
+
+**Reference**: https://www.purnavidya.org/shop
+
+**Recommended to buy**: Puja and Prayers from https://pv.purnavidya.org/bookset/

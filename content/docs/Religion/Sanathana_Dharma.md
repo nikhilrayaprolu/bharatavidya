@@ -86,3 +86,8 @@ The **Ashrama Vyavastha** (system of stages) provides a framework for living a d
 ## Conclusion: The Sacred Tapestry of Life
 
 The Vedic tradition, through its elaborate rituals and structured stages of life, offers a comprehensive guide to achieving spiritual growth and ultimate self-realization. Each samskara and ashrama plays a vital role in shaping an individual's journey, from the early days of learning and discipline to the final stages of renunciation and contemplation. This sacred journey, underpinned by profound philosophical insights and practical disciplines, ultimately leads to the realization of oneness with the divine, as celebrated in the ancient wisdom of the Vedas and Upanishads.
+
+
+**Reference**: https://www.purnavidya.org/shop
+
+**Recommended to buy**: Sanathana Dharma from https://pv.purnavidya.org/bookset/

@@ -66,3 +66,8 @@ Karna is depicted as a figure of charity and inspiration, yet his actions often 
 Bhishma's internal conflict is illustrated when he reveals his sense of being bound by wealth (artha) rather than duty (dharma), acknowledging his predicament to Yudhishthira. Despite being bound to the Kauravas, Bhishma assists Yudhishthira by revealing the secret to defeating him—bringing Shikhandi, whom Bhishma vowed not to fight.
 
 This narrative underscores the Mahabharata's exploration of dharma's complexities in a morally ambiguous world, where even the righteous must navigate through intricate dilemmas and ethical conflicts.
+
+
+**Reference**: https://www.purnavidya.org/shop
+
+**Recommended to buy**: Mahabharata and Ramayana from https://pv.purnavidya.org/bookset/

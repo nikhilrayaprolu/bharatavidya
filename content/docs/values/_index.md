@@ -66,3 +66,8 @@ Karma develops introspection and self-awareness, aiding personal growth and emot
 Incorporating Karma into the curriculum through storytelling, discussions, ethical debates, and reflective practices enhances self-awareness and personal connection. Teaching Karma requires sensitivity and inclusivity, focusing on its universal ethical principles to make it accessible across diverse educational contexts.
 
 In conclusion, Karma enriches Bharata Vidya by instilling personal responsibility, ethical conduct, and interconnectedness. It fosters long-term thinking, introspection, and resilience, preparing students to navigate life wisely. Embracing Karma lays the foundation for a responsible, ethical, and empathetic generation committed to the well-being of themselves and the world.
+
+
+**Reference**: https://www.purnavidya.org/shop
+
+**Recommended to buy**: Values from https://pv.purnavidya.org/bookset/

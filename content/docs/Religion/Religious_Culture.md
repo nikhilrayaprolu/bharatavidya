@@ -45,3 +45,8 @@ The responsibility of passing on cultural heritage intact to future generations 
 In conclusion, there is an urgent need for a renewed focus on culture-based value education. We have to advocate for a collective effort in revitalizing and integrating cultural and spiritual wisdom into modern education systems. By doing so, we can ensure that the sacredness and identity of Bharata Samskriti are preserved for future generations, allowing them to thrive in a world that respects and honors its rich heritage.
 
 The journey towards preserving Indian culture is not just a nostalgic endeavor but a necessary step towards a holistic and enlightened future. By integrating these timeless values into our modern lives, we can create a harmonious blend of the past and present, enriching our society and nurturing our souls.
+
+
+**Reference**: https://www.purnavidya.org/shop
+
+**Recommended to buy**: Religious Culture from https://pv.purnavidya.org/bookset/

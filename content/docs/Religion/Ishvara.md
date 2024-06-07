@@ -89,3 +89,7 @@ Recognizing that Isvara is the infallible order allows us to relax and trust in 
 Realizing that everything is Isvara transforms our perspective, allowing us to see the world as an intelligent assembly serving a divine purpose. This vision helps us trust in the order of the universe and find peace in the knowledge that we are always within Isvara.
 
 This profound understanding resolves our existential dilemmas, offering a path to inner peace and contentment.
+
+
+
+Source: http://explorevedanta.com/vbc-the-concept-of-god-isvara/
