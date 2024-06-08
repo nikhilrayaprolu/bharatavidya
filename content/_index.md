@@ -5,7 +5,7 @@ toc: false
 
 {{< youtube id="aajuzhxEgDk" >}}
 
-Can children wake up each day with a sense of purpose, a heart full of joy, and a mind brimming with curiosity. Can there be a world where the pursuit of knowledge leads not just to success, but to a profound sense of completeness and fulfillment. This is the promise of Bharata Vidya, an education that nurtures the whole individual and paves the way for a brighter, more harmonious future.
+Can children wake up each day with a sense of purpose, a heart full of joy and love, and a mind brimming with curiosity. Can there be a world where the pursuit of knowledge leads not just to success, but to a profound sense of completeness and fulfillment. This is the promise of Bharata Vidya, an education that nurtures the whole individual and paves the way for a brighter, more harmonious future.
 
 When we set forth on any educational journey, we must first ask ourselves: What is its purpose? What will it truly accomplish? Amidst the vast sea of educational philosophies, one question stands out: What will studying Bharata Vidya achieve? The answer is profound—it guides us towards Poornata, or completeness.
 
