@@ -1,6 +1,5 @@
 ---
 title: Pedagogy
-next: docs/upanayana
 weight: 1
 ---
 

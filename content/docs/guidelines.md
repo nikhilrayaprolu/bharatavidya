@@ -1,6 +1,5 @@
 ---
 title: Guidelines for Teachers
-next: docs/values
 weight: 2
 ---
 

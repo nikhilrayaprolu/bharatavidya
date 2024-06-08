@@ -1,6 +1,5 @@
 ---
 title: Purushartha
-next: docs/values
 weight: 3
 ---
 

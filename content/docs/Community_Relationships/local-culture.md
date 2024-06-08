@@ -1,5 +1,5 @@
 
-#### 82. **Community-Based Learning: Engaging with Local Cultures**
+#### Community-Based Learning: Engaging with Local Cultures
 
 Traditional education often stresses standardized curricula, which can disconnect students from their cultural and geographical contexts. Community-based learning addresses this by incorporating local resources, traditions, and expertise. This method aligns with Dharma's principles of interconnectedness, responsibility, and collective well-being.
 
