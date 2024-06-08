@@ -1,3 +1,8 @@
+---
+title: Inner Observation
+type: docs
+weight: 1
+---
 
 ### Inward Observation: Cultivating Self-Awareness and Awareness of Thought
 

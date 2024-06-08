@@ -1,6 +1,4 @@
 
-#### .250. **Exploring Sacred Architecture: Forms and Functions**
-
 ### Exploring Sacred Architecture: Forms and Functions
 
 Sacred architecture holds a unique place in human history and culture, with structures like temples, shrines, and monasteries serving as both places of worship and symbols of spiritual and metaphysical principles. Exploring these architectural marvels in educational contexts offers lessons in aesthetics, functionality, craftsmanship, and spirituality, enriching young minds and souls.

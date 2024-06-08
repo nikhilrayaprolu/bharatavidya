@@ -5,7 +5,7 @@ title: Nature Journalling
 type: docs
 prev: docs/stories/
 ---
-#### 239. **Nature Journaling: Connecting Art, Science, and Observation**
+#### Nature Journaling: Connecting Art, Science, and Observation
 
 In a world dominated by screens and concrete, nature journaling reconnects children with the living world. This simple yet profound practice of recording observations through sketches, notes, and reflections cultivates a rich array of skills and values integral to Bharata Vidya.
 

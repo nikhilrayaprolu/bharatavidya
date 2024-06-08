@@ -1,7 +1,6 @@
 
-#### 189. **Sculpture and Statues: History and Symbolism**
+### Sculpture and Statues: History and Symbolism
 
-**Sculpture and Idols: Unveiling the Depths of Symbolism in Bharata Vidya**
 
 In Vedic and Hindu traditions, sculpture and idols serve as profound vehicles of spiritual, cultural, and ethical education. Often misunderstood, these manifestations of divine principles offer deep insights into the cosmos and human existence. In Bharata Vidya, the study and appreciation of sculpture and idols provide a unique pedagogical approach, combining artistry with profound philosophical symbolism.
 

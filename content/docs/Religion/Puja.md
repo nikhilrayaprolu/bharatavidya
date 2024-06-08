@@ -1,4 +1,4 @@
-**The Beautiful Practice of Pūjā: A Guide to Devotion and Connection with Īśvara**
+#### The Beautiful Practice of Pūjā: A Guide to Devotion and Connection with Īśvara
 
 Pūjā is an intricate yet profoundly rewarding practice that bridges the human with the divine. Rooted in ancient traditions, it is a way to express our deepest gratitude and devotion to Īśvara, the Lord. It is more than just a ritual; it is a symbiotic act involving body, mind, and speech—referred to as kāyikam karma.
 

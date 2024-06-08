@@ -1,7 +1,6 @@
 
-#### 84. **Astronomy and Cosmology: Cosmic Perspective in Education**
+#### Astronomy and Cosmology: Cosmic Perspective in Education
 
-**Unveiling the Universe: Astronomy and Cosmology in Bharata Vidya**
 
 Get ready to embark on a cosmic adventure like no other! In Bharata Vidya, astronomy and cosmology take center stage, inviting students to explore the breathtaking wonders of the universe.
 

@@ -1,5 +1,5 @@
 
-#### 230. **Living in Harmony with Nature: Outdoor Survival Skills and self sufficiency**
+#### Living in Harmony with Nature: Outdoor Survival Skills and self sufficiency
 
 Outdoor survival skills offer a wealth of benefits that extend far beyond wilderness survival. These skills significantly impact personal growth, environmental stewardship, and spiritual development. Children gain practical knowledge that fosters self-reliance, confidence, and critical thinking skills applicable to various life situations.
 

@@ -2,6 +2,7 @@
 title: Stories through Panchatantra
 type: docs
 prev: docs/values/
+weight: 1
 ---
 #### Stories
 

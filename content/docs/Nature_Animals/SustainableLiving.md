@@ -1,4 +1,5 @@
-22. **Ecological Awareness: Teaching Sustainable Living**
+#### Ecological Awareness: Teaching Sustainable Living
+
 Bharata Vidya and ecological awareness are deeply interconnected, with the ancient Vedic hymn Prithvi Suktam venerating the Earth as a sacred, living entity deserving of respect and care. By instilling this reverence and sense of responsibility in children, Bharata Vidya fosters a profound commitment to environmental stewardship.
 
 Sustainable living lies at the heart of this ecological education. Through principles of organic farming, waste reduction, and resource conservation, children learn how their actions directly impact the environment. Gardening programs teach sustainable agriculture and the value of local produce. The concepts of Aparigraha (non-possessiveness) and Asteya (non-stealing) encourage mindful consumption, using only what is needed.  

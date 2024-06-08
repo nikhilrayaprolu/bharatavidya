@@ -1,3 +1,9 @@
+---
+title: Vedanta -- Primer
+type: docs
+weight: 6
+---
+
 # Vedanta -- Primer
 
 ## Sharira Trayam

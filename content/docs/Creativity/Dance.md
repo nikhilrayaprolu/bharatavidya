@@ -1,5 +1,5 @@
 
-#### 73. **Incorporating Dance and Movement for Holistic Development**
+#### Incorporating Dance and Movement for Holistic Development
 
 Recognizing the intrinsic connection between body and mind, Bharata Vidya emphasizes dance and movement as vital components of holistic development. Dance not only provides physical activity but also serves as an expression of culture, emotion, and spirituality. Integrating it into the curriculum nurtures physical health, enhances emotional well-being, fosters social cohesion, and facilitates spiritual growth.
 

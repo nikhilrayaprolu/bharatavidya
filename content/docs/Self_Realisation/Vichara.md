@@ -1,5 +1,11 @@
-#### Philosophical Inquiry: Exploring Life’s Deep Questions
+---
+title: Philosophical Inquiry
+type: docs
+weight: 3
+---
 
+
+#### Philosophical Inquiry: Exploring Life’s Deep Questions
 
 The pursuit of knowledge often starts with a simple question: "Why?" While modern education emphasizes empirical learning, Bharata Vidya values philosophical inquiry, recognizing its role in fostering critical thinking, intellectual curiosity, and a deeper understanding of one's place in the universe. These inquiries equip children with a framework for examining life's complexities, promoting wonder and a lifelong quest for wisdom.
 

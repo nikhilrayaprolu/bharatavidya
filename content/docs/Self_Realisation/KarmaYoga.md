@@ -1,3 +1,10 @@
+---
+title: Karma Yoga
+type: docs
+weight: 4
+---
+
+
 ### Karma Yoga: A Path to Inner Peace and Spiritual Growth
 
 #### Introduction
@@ -54,3 +61,6 @@ Consider a presentation:
 
 #### Conclusion
 Karma Yoga, when continuously practiced, becomes second nature. Starting with actions causing stress, one can expand this practice to all life’s actions, ultimately offering oneself to Isvara, and attaining inner peace and spiritual growth.
+
+
+**Reference:** http://explorevedanta.com/vbc-karma-yoga/

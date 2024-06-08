@@ -1,5 +1,5 @@
 
-#### 99. **Spiritual Gardening: Lessons from Nature`
+#### Spiritual Gardening: Lessons from Nature
 
 In the bustling modern world, spiritual gardening offers a grounding and enlightening experience for children. Through tending to plants and soil, they learn profound lessons about life, growth, and their role in the web of existence.
 

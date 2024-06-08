@@ -1,5 +1,5 @@
 
-#### 21. **Sacred Geometry and Mathematics in Vedic Education**
+#### Sacred Geometry and Mathematics in Vedic Education
 
 Sacred geometry posits that certain geometric patterns and shapes are fundamental to the universe's creation and structure, holding spiritual significance and representing cosmic order. Symbols like the Mandala, Sri Yantra, and the Flower of Life are more than visually captivating; they embody universal truths and archetypes.
 
