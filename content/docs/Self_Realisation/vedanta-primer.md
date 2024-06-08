@@ -1,10 +1,8 @@
 ---
-title: Vedanta -- Primer
+title: Vedanta - Primer
 type: docs
 weight: 6
 ---
-
-# Vedanta -- Primer
 
 ## Sharira Trayam
 a Jiva is composed of three bodies: the Gross Body (Sthula Sharira), the Subtle Body (Sukshma Sharira), and the Causal Body (Karana Sharira). For each of these bodies, we will examine four critical factors: the material from which each body is made, the components within each body, the function of each body, and the nature of each body.
