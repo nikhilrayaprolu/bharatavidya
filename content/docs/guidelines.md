@@ -1,6 +1,6 @@
 ---
 title: Guidelines for Teachers
-weight: 2
+weight: 20
 ---
 
 
