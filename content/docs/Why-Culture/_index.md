@@ -3,6 +3,10 @@ title: Why Culture
 weight: 2
 ---
 
+--- What is understood can never be disturbed, but what is believed can be disturbed
+--- If you don't want to read the whole. Atleast understand that Bharatiya Culture is all about Sahajate ( Simplicity -- Natural Beingness rather than continuous struggle of becoming, Inner and Outer Harmony, Integrity) and Duty Conscious
+
+As teachers and parents, one will realise that what one can teach is only that much of what one can
 ## The Rich Spiritual Heritage of India: A Journey of Inner Harmony
 This Page is dedicated to exploring the profound spiritual legacy that has been passed down through generations, transcending time and change. Our focus is to connect with an ancient spiritual wisdom that, despite originating millennia ago, remains relevant and invaluable in contemporary life.
 
