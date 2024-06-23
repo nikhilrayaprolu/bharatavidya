@@ -37,15 +37,8 @@ Kama refers to all forms of sensual pleasure, such as food, travel, sex, and mus
 
 Our desires are ever-changing and subjective, leading to a constant shift in what we find pleasurable. This shifting nature of desires keeps us in a perpetual struggle to obtain what we find enjoyable and avoid what we find displeasurable.
 
-### 3. Dharma
 
-## Embracing Dharma: The Path to True Success
-
-### Introduction
-
-In the pursuit of happiness and success, our actions and choices play a crucial role. The ancient wisdom of Dharma, a concept deeply rooted in Indian philosophy, offers a path to genuine self-esteem and fulfillment. 
-
-### Dharma: A Guiding Force Inside Us
+### 3. Dharma: A Guiding Force Inside Us
 
 Dharma, the universal laws manifested as inner conscience within each of us. It is a moral compass that guides our actions and decisions. When we act in accordance with Dharma, we align ourselves with this divine presence, leading to a sense of inner peace and satisfaction. Conversely, when we act against Dharma—by cheating, hurting, or exploiting others—we experience guilt and regret, as we are essentially going against our true nature and the universal order.
 
