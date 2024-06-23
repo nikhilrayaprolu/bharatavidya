@@ -1,3 +1,9 @@
+---
+title: Karma
+weight: 8
+---
+
+
 # The Karma Paradox: India's Economic Journey and the Misunderstood Philosophy
 
 In the tapestry of global economics, India's story is often viewed through a lens clouded by misconceptions. Critics have long pointed fingers at the concept of karma, claiming it to be the root of India's economic challenges. However, this simplistic view not only misses the mark but also fails to appreciate the depth and complexity of both karma and India's economic journey. Let's unravel this paradox, exploring the true essence of karma and its role in shaping India's resilience and potential.

@@ -1,3 +1,8 @@
+---
+title: Ishwara
+weight: 7
+---
+
 # Understanding God: A Journey from Belief to Knowledge
 
 In a world where belief often precedes understanding, we find ourselves at a crossroads of faith and knowledge. How many of us, when asked, would raise our hands to affirm our belief in God? But what does this belief truly mean, and how does it shape our perception of the world around us?

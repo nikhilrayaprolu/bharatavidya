@@ -1,3 +1,8 @@
+---
+title: Relationships
+weight: 4
+---
+
 # The Art of Living: Embracing Life's Dance
 
 In the grand tapestry of existence, we find ourselves actors on a cosmic stage, each playing myriad roles in an ever-unfolding drama. This journey, fraught with challenges and joys, is what we call life. But what does it truly mean to live? How can we navigate the complexities of our relationships, roles, and responsibilities while maintaining a sense of self? Let's embark on an exploration of the art of living, drawing wisdom from ancient philosophies and modern insights.

@@ -1,3 +1,9 @@
+---
+title: Ritual
+weight: 10
+---
+
+
 ### The Role of Ishwara in Rituals
 Ishwara, a concept reflecting the divine or supreme being, plays a pivotal role in understanding karma. Perceiving Ishwara in every form transforms kaya karma (physical actions) into a blessing. Everything in our world, from language to physical actions, is a series of forms—visual, auditory, symbolic—giving us a flexible medium to express our spirituality. Recognizing the divine manifestation in every form, we realize that invoking Ishwara in a particular form is not just acceptable but deeply meaningful.
 ### Rituals as Expressions of Devotion

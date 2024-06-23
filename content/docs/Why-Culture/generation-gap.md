@@ -1,3 +1,8 @@
+---
+title: Generation Gap
+weight: 5
+---
+
 The concept of a generational gap often refers to the differences in values, attitudes, and behaviors between one generation and another. However, when examined through the lens of traditional Indian philosophy, particularly the framework of the **Purusharthas** (the four aims of human life), it can be argued that what is often perceived as a generational gap is more accurately an ideological shift.
 
 ### Purusharthas: The Four Aims of Life

@@ -1,7 +1,10 @@
 ---
 title: Purushartha
-weight: 3
+weight: 1
 ---
+
+"Our sages discovered the ultimate reality and gave a lifestyle aligned with that and kept ultimate reality as goal or purushartha for humans."
+
 
 ## Introduction
 

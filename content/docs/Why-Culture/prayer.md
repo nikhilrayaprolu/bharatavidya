@@ -1,4 +1,9 @@
 
+---
+title: Prayer
+weight: 9
+---
+
 
 ### The Interplay of Self-Esteem, Dharma, and Spiritual Growth
 Navigating the intricate balance between self-esteem and Dharma is an age-old challenge, a delicate dance that our internal and external worlds must perform in unison. Often, we find ourselves trapped in a cycle, seeking self-esteem to follow Dharma, yet needing Dharma for self-esteem. How do we break free from this mutual dependence? The answer lies in understanding and harnessing both internal and external sources of support.
