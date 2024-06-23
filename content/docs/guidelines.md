@@ -45,7 +45,7 @@ weight: 20
 
 #### 3. Understanding Dharma
 
-- **True Nature of Dharma:** Dharma is not about protecting personal beliefs but about discovering Ishvara’s play in all acts, both good and bad.
+- **True Nature of Dharma:** Dharma is not about protecting personal beliefs but about discovering Ishvara’s play in all acts, both good and bad. Dharma is not a way to condition yourself, Dharma is a way to grow and uncondition yourself
 - **Instrument of Ishvara:** A person acting from compassion sees themselves as an instrument of Ishvara, not enforcing results or directions.
 - **Internal Harmony:** True harmony and positive impact come from internal alignment with Dharma, not from trying to save or impose it.
 
@@ -122,7 +122,7 @@ weight: 20
 ### Conclusion
 
 1. **Promote Compassionate Teaching:** Emphasize the importance of acting from a place of compassion rather than ego or fear.
-2. **Redefine Dharma:** Clarify the true nature of Dharma as a discovery of Ishvara’s play rather than a mission to protect personal beliefs.
+2. **Redefine Dharma:** Clarify the true nature of Dharma as a discovery of Ishvara’s play rather than a mission to protect personal beliefs. Dharma is not a way to condition yourself, Dharma is a way to grow and uncondition yourself
 3. **Encourage Individual Attention:** focus on the unique nature and inclinations of each child, avoiding the imposition of personal ideals.
 4. **the Role of Higher Chakras:** Differentiate between actions driven by lower chakras (motivated by fear, control, and recognition) and those inspired by higher chakras (motivated by love, compassion, and wisdom).
 5. **Simplicity in Spiritual Practice:** Encourage simplicity and surrender in spiritual practice, as opposed to effort and complexity.
