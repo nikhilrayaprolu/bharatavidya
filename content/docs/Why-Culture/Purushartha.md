@@ -181,6 +181,25 @@ Daily life involves various social, political, economic, and legal Dharmas. Abid
 
 The physical body has its own Dharma, necessitating actions that maintain health and avoid harm. Scripture advises against detrimental habits and encourages those promoting well-being.
 
+### Runas
+In Sanatana Dharma, the term "runa" refers to a debt or obligation that an individual must fulfill in their lifetime. There are five primary runas (debts) that one is born with and must strive to repay through their actions.
+
+These runas can be understood not merely as debts but as guiding principles for actions that lead to a harmonious and fulfilling life. Deva Runa involves engaging in spiritual practices to foster a connection with the divine, promoting inner peace. Rishi Runa emphasizes the study and propagation of spiritual wisdom, enhancing personal and societal harmony. Pitru Runa focuses on respecting and performing rituals for ancestors, ensuring family unity. Manushya Runa encourages compassion and community support, building strong, cohesive societies. Bhuta Runa advocates for respect and care for nature, ensuring ecological balance. By viewing these runas as principles of action, individuals align their activities with the greater cosmic order, achieving balance and interconnectedness.
+
+ These are:
+
+1. **Deva Runa (Debt to the Gods)**: This debt is repaid by performing rituals, prayers, and offerings to the deities. It involves practicing religious ceremonies and maintaining spiritual practices to honor the divine forces that sustain the universe.
+
+2. **Rishi Runa (Debt to the Sages)**: This debt is owed to the ancient sages and seers who have imparted spiritual knowledge and wisdom. It is repaid by studying the scriptures, preserving and propagating the teachings, and living according to the moral and ethical guidelines provided by the sages.
+
+3. **Pitru Runa (Debt to the Ancestors)**: This debt is to one's ancestors and is repaid by continuing the family lineage, performing rituals for the departed souls, and ensuring their peace and liberation. This often includes practices like shraddha (ancestral rites) and caring for one's parents and elders.
+
+4. **Manushya Runa (Debt to Humanity)**: This debt represents the obligation to other human beings. It is repaid by practicing compassion, helping those in need, and contributing to the welfare of society. This includes acts of charity, hospitality, and supporting community welfare.
+
+5. **Bhuta Runa (Debt to Nature and Living Beings)**: This debt is owed to all living beings and nature itself. It is repaid by showing respect and care for the environment and other creatures. This includes practices like non-violence (ahimsa), conservation of natural resources, and living in harmony with nature.
+
+These runas emphasize the interconnectedness of life and the importance of fulfilling one's duties towards the divine, the wise, the ancestors, humanity, and the environment. By recognizing and striving to repay these debts, individuals can lead a balanced and dharmic life.
+
 ### The Ultimate Goal: Moksha
 While Dharma is a significant value, it serves as a means to the ultimate goal of Moksha – complete liberation. Moksha is described as freedom from the feeling of insignificance, achieved by recognizing one's true nature as something beyond the ordinary dichotomies of significant and insignificant.
 
