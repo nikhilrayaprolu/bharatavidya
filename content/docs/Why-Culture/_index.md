@@ -10,6 +10,26 @@ weight: 2
 As teachers and parents, we realize that we can only impart as much as we have truly understood ourselves. So this is a material for one to understand our culture.
 
 
+---
+
+#### INTRODUCTION TO FORM AND SPIRIT OF VEDIC CULTURE  
+
+
+The Vedic vision and way of life have sustained the Indian culture through the ages. The Vedas have ruled the hearts of generations of people and inspired them to live a life of dharma. The society has provided forms by which an individual is initiated into the Vedic culture. Forms such as worship, festivals, drama, poetry, language and arts have carried great significance in providing for the individual's inner growth and in establishing a link between the past and contemporary society.
+
+For any society to remain dynamic in the fast-changing world, its forms must change to keep pace with the changing times. As forms change, there may be conflicts between the current demands of the society and traditions from the past. Often conflicts may arise as to which aspects of the forms should be retained and which should be given up.
+
+One needs to appreciate the role of sāmānya-dharma, universal codes of conduct, as well as viśeṣa-dharma, specific codes of conduct, in order to adapt forms relevant to one’s society. While sāmānya-dharma is universal in nature, its expression can vary from culture to culture and within a culture, from time to time. This variance in the cultural expression of a universal value is known as viśeṣa-dharma. Over time, some cultural forms remain recognizable while others do not. In all these changes, however, the universal dharma behind the forms is retained, giving meaning to the changing forms.
+
+For example, in ancient times, there was a tradition of deva-dāsīs, female temple dancers, who dedicated their lives to the Lord. They lived a spiritual life in the temple, where they sang and danced in praise of the temple deity. Today, even though this tradition of deva-dāsīs attached to temples is not found anywhere, every dance concert begins and concludes with a prayer to the teacher and to the Lord. The artists create an altar in a corner of the stage, and the dance itself becomes an offering, as it was with the deva-dāsīs. Thus even though the expression of this custom has changed over time, the spirit of devotion continues.
+
+When the spirit of a tradition is not understood, it is essential that its forms be retained. Even though forms devoid of spirit may appear to be meaningless expressions, one cannot eliminate forms from one’s life. Cultural forms provide one with an infrastructure for the expression of all aspects of human life. Only by retaining the forms and attempting to re-establish meaning into them is there any possibility of discovering the spirit that enlivens the forms. For example, a ritual of prayer done daily out of will should eventually help the person discover real devotion. Devotion and prayer are connected as cause and effect. When there is lack of devotion, one can discover it as one keeps the form of prayer going.
+
+Children of Indian immigrants in the West are often told by their parents to touch the feet of elders as a mark of respect. This cultural form is often resented by a child because he does not appreciate the spirit behind it. But, if a child continues to practise the form, without being pressured to do so by his parents, he may eventually appreciate the spirit of reverence. Understanding the significance of cultural forms is essential for preserving the identity of one’s culture in a foreign land.
+
+If the spirit of one’s own tradition is not understood, one will naturally be drawn to forms that are available in other cultures. Where alternatives are available, one is naturally inclined to choose forms based on one’s likes and dislikes which may compromise one’s values. For example, the Hindu culture subscribes to vegetarian foods primarily because of the value of noninjury. But if one grows up without an understanding of this value, one is likely to choose a non-vegetarian diet.
+
+
 #### The Essence of Sanathana Dharma
 
 At its core, Sanathana Dharma is rooted in the understanding that every individual is an integral part of a larger cosmic order. This ancient philosophy teaches that the universe is a unified entity where every element, from the smallest particle to the largest celestial body, is interdependent. This holistic vision encourages individuals to see beyond their personal desires and recognize their role in maintaining the equilibrium of the entire cosmos.
@@ -54,3 +74,5 @@ The duties in Sanathana Dharma are categorized into various types, including:
 In Sanathana Dharma, every day presents opportunities to contribute to societal welfare. Simple, everyday actions, when performed with awareness and a sense of duty, accumulate to create a significant positive impact. Whether it is through the practice of honesty in professional dealings, kindness in social interactions, or mindfulness in environmental conservation, each act becomes a sacred offering to the collective good.
 
 This perspective encourages individuals to live with a sense of purpose and responsibility. By aligning personal actions with the broader goal of universal harmony, life gains a deeper meaning. The emphasis is not on the grandeur of the acts but on the intention and consciousness behind them. Every small effort counts, and when multiplied across the community, these efforts lead to a harmonious and prosperous society.
+
+
