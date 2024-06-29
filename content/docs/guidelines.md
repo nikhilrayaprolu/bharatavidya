@@ -21,6 +21,16 @@ An inwardly resolved student is not attached to the ideal of a perfectly dharmic
 This perspective fosters acceptance, compassion, and non-judgment, steering away from actions driven by personal emotional dissatisfaction, frustration, or sadness about the world's condition.
 Recognizing that life follows its own rhythm and that our efforts to mold it to fit our ideals of a dharmic world are "mere illusions of control" created by Maya, leads to a deeper understanding of reality. This understanding frees one from the judgments one holds towards the world and thereby one's actions are no more. driven from a sense of mission but are just expressions of spontaneous living.
 
+Live like a clear crystal, allowing everything to flow through you effortlessly rather than forcing them to happen. Remain completely untouched by any work you do, as if you haven't done anything at all. When you recognise the truth, you realise life simply unfolded, and you were merely a vessel for it to happen.
+
+### Why does people want to build models, experiment and hope to scale the number of schools?
+
+A true school is where the motivation of the teachers is not about scaling the impact but about giving their presence to the child, expressing the bond of love, trust and respect.
+
+Love cannot be scaled, it cannot be implemented, it can only be expressed. People with a mission doesn't know what this true love is.
+
+As long as one doesn't discover this inner love, one cannot truly rest nor can one make others understand the truth of true freedom that wise men have spoken from time to time.
+
 ### Guidelines for Teachers in Culture-Based Education
 
 ---
