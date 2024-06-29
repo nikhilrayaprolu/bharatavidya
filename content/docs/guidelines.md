@@ -1,6 +1,6 @@
 ---
 title: Guidelines for Teachers
-weight: 20
+weight: 3
 ---
 
 
@@ -15,6 +15,11 @@ weight: 20
 7. **Over-Complication of Spiritual Path:** Teachers may complicate the spiritual path with too many techniques and practices.
 8. **Cultural Superiority:** There might be a belief that one's own culture is the greatest and needs to be protected at all costs.
 
+### Education should cultivate students who are inwardly resolved.
+
+An inwardly resolved student is not attached to the ideal of a perfectly dharmic world and does not feel saddened by its current state. Instead, they embrace the inherent uncertainty of life and recognize that everyone is on their unique journey of self-discovery, even amidst the apparent chaos of the world.
+This perspective fosters acceptance, compassion, and non-judgment, steering away from actions driven by personal emotional dissatisfaction, frustration, or sadness about the world's condition.
+Recognizing that life follows its own rhythm and that our efforts to mold it to fit our ideals of a dharmic world are "mere illusions of control" created by Maya, leads to a deeper understanding of reality. This understanding frees one from the judgments one holds towards the world and thereby one's actions are no more. driven from a sense of mission but are just expressions of spontaneous living.
 
 ### Guidelines for Teachers in Culture-Based Education
 
