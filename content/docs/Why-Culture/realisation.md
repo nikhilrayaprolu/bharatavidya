@@ -61,3 +61,12 @@ Understanding happiness in this way doesn't mean we should ignore the external w
 As we cultivate this deeper self-awareness, we may find that happiness arises more naturally and frequently in our lives. We become less dependent on external conditions and more attuned to the wellspring of joy within us.
 
 In the end, the pursuit of happiness leads us not outward, but inward. It invites us to explore the vast, uncharted territory of our own consciousness. And in that exploration, we may discover that the happiness we've been seeking has been with us all along, waiting patiently for us to recognize it as our very own nature.
+
+
+### Path of Sanathana Dharma to Sahaja
+
+**Adharma to Dharma:** Experiencing negative consequences of adharma, such as guilt and social disapproval, leads to an awareness of karma. Exposure to positive role models and self-reflection inspires a shift towards dharma. Learning about and understanding the long-term benefits of dharma, making incremental changes, experiencing positive reinforcement, and engaging in practices like meditation and devotion foster a commitment to righteous living.
+
+**Dharma to Karma Yoga:** Beginning with a foundation in righteousness and cultivation of virtues, one recognizes the attachments formed by simply following dharma. The concept of karma yoga is introduced, emphasizing selfless action without attachment to results. Teachings from the Bhagavad Gita, practice of mental equanimity, reduction of ego, and continued meditation and devotion support this transition.
+
+**Karma Yoga to Jnana:** Through selfless service and maintaining equanimity, one develops inner awareness and introspection, leading to self-inquiry. Studying spiritual texts and seeking guidance from teachers deepens understanding. Regular meditation and contemplation foster non-attachment and inner freedom, culminating in the direct realization of self-knowledge and integration of this wisdom into daily life.
