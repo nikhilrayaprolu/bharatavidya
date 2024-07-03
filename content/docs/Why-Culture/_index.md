@@ -12,6 +12,42 @@ As teachers and parents, we realize that we can only impart as much as we have t
 
 ---
 
+### We are spiritual beings on a temporary journey in the physical realm, guided by principles that reflect our true nature.
+
+The fundamental attitude of Sanathana Dharma that "we are spiritual beings having a temporary stay in a physical body" is indeed the core principle from which all the practices and values towards life derive. 
+
+1. Spiritual nature: 
+This is the direct expression of the core attitude. Recognizing our spiritual essence shifts focus from material pursuits to spiritual growth.
+
+2. Temporary physical existence:
+The understanding that our physical existence is temporary naturally leads to:
+   - Detachment from material possessions and outcomes
+   - A focus on long-term spiritual consequences (karma) over short-term material gains
+   - Reduced fear of death and a different perspective on life's challenges
+
+3. Interconnectedness:
+If we are all spiritual beings temporarily inhabiting physical forms, it follows that we share a common spiritual essence. This understanding naturally promotes:
+   - Unity in diversity
+   - Compassion and empathy towards others
+   - Respect for all forms of life, including nature
+   - Ethical behavior towards others (Dharma) as the spiritual essence is one in all of us
+   - Fulfillment of societal and familial responsibilities
+
+4. Self-realization:
+The goal of realizing our true spiritual nature becomes paramount, leading to:
+   - Practices like meditation and yoga for spiritual growth
+   - Reduced dependence on external validation
+   - A quest for higher knowledge and understanding
+
+6. Moderation and balance:
+Understanding our dual nature as spiritual beings in physical bodies promotes:
+   - Balanced approach to material and spiritual aspects of life
+   - Moderation in pursuits, avoiding extremes
+
+7. Holistic well-being:
+Recognizing the interplay between our spiritual essence and physical existence encourages:
+   - Care for both spiritual and physical health
+   - Practices that integrate mind, body, and spirit
 
 
 #### The Essence of Sanathana Dharma
